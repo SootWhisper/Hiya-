@@ -8,7 +8,7 @@ I find comfort in touch, so C + H freely!
 
 I rarely talk in game, but I am willing to!
 
-Main Fandoms: Minecraft ARGS, MLP, and Warrior Cats.
+Main Fandoms: Minecraft ARGS, MLP, Warrior Cats, FNaF, and The Crane Wives
 
 Outside of these fandoms, I enjoy writing, drawing/animating, reading, and live theatre!
 
